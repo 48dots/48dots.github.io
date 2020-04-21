@@ -44,7 +44,7 @@ I loosened the reins a little, trying to find some balance. I let myself bring m
 
 My aha moment came months later, as I was updating my career goals at work. This was something I had done throughout my career, never thinking too much about its significance. But these goals were precisely what I ran toward when I took the distractions away. With the right amount of focus, I was achieving them. 
 
-But I didn't have these goals for other parts of my life. Outside of work, I was in a state of stagnation. I thought it was the distractions around me that were holdingg me back. I was trying to burn down the Library of Alexandria because I couldn't keep myself out of the comics section. *But the real reason I was going to the comics section in the first place was because I didn't know where else to go!*
+But I didn't have these goals for other parts of my life. Outside of work, I was in a state of stagnation. I thought it was the distractions around me that were holding me back. I was trying to burn down the Library of Alexandria because I couldn't keep myself out of the comics section. *But the real reason I was going to the comics section in the first place was because I didn't know where else to go!*
 
 ![The Library of Alexandria burning](/img/libraryofalexandria.jpg)
 
