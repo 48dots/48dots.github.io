@@ -8,7 +8,7 @@ There were a thousand things I *could* be doing. There were a hundred things I *
 
 I knew I'd look back at that moment in an hour with disgust. But I've been here before - many times. I couldn't help myself. The tempting glow of my screen has been designed to reel me in, just like those crunchy red cylinders of goodness. Mmmmmm. Takis.
 
-![Mmmmm. Takis. Source: Takis USA, https://twitter.com/TakisUSA/status/757646713708503040/photo/1](/img/takis.jpg)
+![Mmmmm. Takis. Source: Takis USA, https://twitter.com/TakisUSA/status/757646713708503040/photo/1](/img/blog/takis.jpg)
 
 *How can you say no to Takis? Source: [Takis USA](https://twitter.com/TakisUSA/status/757646713708503040/photo/1)*
 
@@ -24,7 +24,7 @@ A few weeks later, I had a day of complete productivity. Everything was going ri
 
 As I got in my car to head home, I realized what was different. I had accidentally left my phone in the car!
 
-![My phone on my car seat. A blessing in disguise? Source: Filmsupply - https://filmsupply-files.s3.amazonaws.com/fs/files/production/clip_th/304487/2-480.0twRgmo6Huq7xblT1M1OpBD3HuTHRC1xHkJAGCBz.jpg](/img/phoneonseat.jpg)
+![My phone on my car seat. A blessing in disguise? Source: Filmsupply - https://filmsupply-files.s3.amazonaws.com/fs/files/production/clip_th/304487/2-480.0twRgmo6Huq7xblT1M1OpBD3HuTHRC1xHkJAGCBz.jpg](/img/blog/phoneonseat.jpg)
 
 *My phone on my car seat. A blessing in disguise? Source: [Filmsupply](https://filmsupply-files.s3.amazonaws.com/fs/files/production/clip_th/304487/2-480.0twRgmo6Huq7xblT1M1OpBD3HuTHRC1xHkJAGCBz.jpg)*
 
@@ -32,7 +32,7 @@ So I tried an experiment. I left my phone in my glove compartment every day as I
 
 It was clear - I had to become the Gautama Buddha of the 21st century. I just needed to set my worldly pleasures aside, and I would be on the fast track to success.
 
-![Buddha meditating. Source: Buddhist Peace Fellowship - http://www.buddhistpeacefellowship.org/where-is-your-bodhi-tree/](/img/buddha.jpg)
+![Buddha meditating. Source: Buddhist Peace Fellowship - http://www.buddhistpeacefellowship.org/where-is-your-bodhi-tree/](/img/blog/buddha.jpg)
 
 *Sure looks peaceful, doesn't it? Source: [Buddhist Peace Fellowship](http://www.buddhistpeacefellowship.org/where-is-your-bodhi-tree/)*
 
@@ -46,7 +46,7 @@ My aha moment came months later, as I was updating my career goals at work. This
 
 But I didn't have these goals for other parts of my life. Outside of work, I was in a state of stagnation. I thought it was the distractions around me that were holding me back. I was trying to burn down the Library of Alexandria because I couldn't keep myself out of the comics section. *But the real reason I was going to the comics section in the first place was because I didn't know where else to go!*
 
-![The Library of Alexandria burning](/img/libraryofalexandria.jpg)
+![The Library of Alexandria burning](/img/blog/libraryofalexandria.jpg)
 
 *Incendie Alexandrie by Hermann Goll, 1876. Source: [Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Incendie_Alexandrie_by_Hermann_Goll_1876.jpg)*
 
@@ -54,7 +54,7 @@ I already knew what my life goals were in an abstract sense. But reflecting on t
 
 Everyone knows the story of the tortoise and the hare. The slow tortoise challenges the fast hare to a race. The hare is so confident in his victory that he takes a nap partway through, and the tortoise - the technical underdog - wins.
 
-![The tortoise and the hare](/img/tortoiseandhare.jpg)
+![The tortoise and the hare](/img/blog/tortoiseandhare.jpg)
 
 *Evenly matched? Source: [Medium](https://medium.com/@kristw/how-long-could-the-hare-in-the-tortoise-and-the-hare-sleep-fe82a36bc644)*
 
