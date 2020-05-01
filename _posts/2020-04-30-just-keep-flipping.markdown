@@ -2,7 +2,7 @@
 layout: post
 title:  "Just keep flipping"
 date:   2020-04-30
-categories: time management
+categories: time+management
 ---
 *Flip. Flip. Flip. Flip.*
 
