@@ -16,7 +16,8 @@
 title: 48dots
 email: admin@48dots.com
 description: >- # this means to ignore newlines until "baseurl:"
-  We help you set goals and achieve them.
+  It's your time. Make it count.
+  We teach you how to take ownership of your time and work towards your goals without turning into a robot.
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site, e.g. http://example.com
 facebook_username: 48dots
