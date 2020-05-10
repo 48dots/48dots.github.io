@@ -62,13 +62,17 @@ But when we view each of those tasks as an experience to savor, something magica
 
 When I was in school, playing the piano was a chore. My parents wanted me to practice 30 minutes a day, and I hated every minute of it. My practicing was low quality, and it showed in my lack of progress. After over a decade of playing the piano, I hadn't progressed much beyond where I started. In high school, I unceremoniously stopped lessons and stopped playing.
 
-On a whim, I bought myself a digital piano in college. I wasn't taking lessons. The piano was no longer an obligation, it was just *there*. I found myself playing again, this time for fun. While practicing for 30 minutes was a complete chore during school, now I found myself organically playing for much longer. The quality of my playing had increased, too. When piano was no longer a chore on a timer, the quality of my experience increased.
+On a whim, I bought myself a digital piano in college. I wasn't taking lessons. The piano was no longer an obligation, it was just *there*. I found myself playing again, this time for fun. While practicing for 30 minutes was a complete chore during school, now I found myself organically playing for much longer. The quality of my playing had increased, too. **When piano was no longer a chore on a timer, the quality of my experience increased.**
 
 ![Photo by Michal Czyz on Unsplash](/img/blog/piano.jpg)
 
 *Changing the way I looked at my piano changed my experience with it. Photo by [Michal Czyz](https://unsplash.com/@digitalmike?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/piano?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText)*
 
-Giving myself the time to naturally ease into everything I do, take the time to enjoy it, and reflect on my accomplishment not only increases my satisfaction but also the quality of my work. Speaking of which, I think it's the perfect time for a nap. *Siri - set a 36 minute timer*.  
+Giving myself the time to naturally ease into everything I do, taking the time to enjoy it, and reflecting on my accomplishments not only increases my satisfaction but also the quality of my work. I've found the "nap mindset" to be a great way to frame every aspect of my life.
+
+Speaking of which, I think it's the perfect time for a nap. 
+
+*Siri - set a 36 minute timer*.  
 
      
 
