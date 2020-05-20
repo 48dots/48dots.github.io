@@ -12,7 +12,7 @@ The last time I've written under this kind of pressure was when I took the GRE. 
 
 ![Photo by JESHOOTS.COM on Unsplash](/img/blog/stressed_writing.jpg)
 
-*This is what staring at a blank page with a timer counting down feels like. Photo by [JESHOOTS.COM](https://unsplash.com/@jeshoots?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText) on Unsplash)*
+*This is what staring at a blank page with a timer counting down feels like. Photo by [JESHOOTS.COM](https://unsplash.com/@jeshoots?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText) on Unsplash*
 
 **Writing takes time.** My last post took about four hours to write, and three more hours the next day to edit. Between getting the wording "just right", finding the best pictures to help tell my story, typing it all up and publishing, it's easy to spend an entire weekend working on and thinking about a blog post. I told myself that I would write a blog post a week. Currently, I don't have a large audience of followers expecting a weekly blog post, which means that the only accountability I have is to myself.       
 
